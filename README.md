@@ -1,1 +1,1 @@
-This page includes music sheets and sound files for my compositions.
+This page includes music sheets for my compositions.
